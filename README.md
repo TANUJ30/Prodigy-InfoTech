@@ -9,4 +9,4 @@ MODE: ONLINE
 
 OFFER LETTER:-
 
-![OFFER LETTER](https://github.com/dhairya-gayakwad/Prodigy-InfoTech/assets/170263438/c9f60502-14f0-4967-8d6a-23849f082b1b)
+![OFFER LETTER](https://www.linkedin.com/posts/tanuj-suthar-722ab0330_internship-offer-letter-activity-7247462088502083585-7SV-?utm_source=share&utm_medium=member_desktop))
