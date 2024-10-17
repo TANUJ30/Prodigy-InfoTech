@@ -9,4 +9,4 @@ MODE: ONLINE
 
 OFFER LETTER:-
 
-![OFFER LETTER](https://www.linkedin.com/posts/tanuj-suthar-722ab0330_internship-offer-letter-activity-7247462088502083585-7SV-?utm_source=share&utm_medium=member_desktop))
+![OFFER LETTER](https://www.linkedin.com/posts/tanuj-suthar-722ab0330_internship-offer-letter-activity-7247462088502083585-7SV-?utm_source=share&utm_medium=member_desktop)
